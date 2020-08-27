@@ -1,0 +1,2 @@
+# noobsai
+Su
